@@ -3,6 +3,7 @@ Exploring the emergence of ancient mosaics used for decorating purposes to hide 
 
 ## Start Here
 
+[Some guy's Flickr from his trip to Italy](https://www.flickr.com/photos/ecormany/138583183/in/photostream/)
 [Greek & Roman Mosaics: Where are they?](http://www.classics.upenn.edu/myth/php/tools/dictionary.php?method=did&regexp=649)
 [Pinterest Links](https://www.pinterest.com/pin/27021666491415528/?lp=true)
 
